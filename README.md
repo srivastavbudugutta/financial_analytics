@@ -7,7 +7,3 @@ After careful consideration, I evaluated three options: building the product in-
 Upon thorough analysis, I recommended that our company collaborate with the startup specializing in the desired product. This option presented several advantages, including a shorter time to market, leveraging the expertise and existing customer base of the startup, and minimizing the risks associated with building a new product from scratch.
 
 By forging a strategic partnership with the startup, we would be able to offer an innovative solution to our clients, enhance our suite of SaaS products, and capitalize on the startup's market knowledge and established presence. This collaboration would not only address the immediate demands of our clients but also position our company for future growth and success in an ever-changing technology landscape.
-
-Throughout the project, I showcased my ability to evaluate options, consider market dynamics, and provide strategic recommendations aligned with the CEO's vision. By emphasizing the importance of R&D capabilities and advocating for collaboration, I demonstrated my aptitude for making informed decisions that drive business objectives.
-
-Overall, this project highlights my critical thinking, problem-solving skills, and ability to navigate complex business scenarios, making it a valuable addition to my resume.
